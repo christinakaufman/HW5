@@ -1,1 +1,1 @@
-Christina Kaufman Chicago Bulls
+Christina Kaufman Chicago Bulls & Blackhawks
